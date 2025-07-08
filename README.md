@@ -32,6 +32,6 @@
 我们致力于提供最优质的日本AV资源，确保你在这里找到满意的内容。我们的目标是为你带来便捷、舒适、并且不受限制的观看体验。无论你是常规观众还是新手，这里都有适合你的内容。
 
 
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] ( https://github.com/dtn2611/170000  ）</span>
 
 
